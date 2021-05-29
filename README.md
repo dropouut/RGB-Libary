@@ -1,1 +1,1 @@
-https://www.roblox.com/libary/6880041641/
+https://web.roblox.com/library/6880041641/Libary
